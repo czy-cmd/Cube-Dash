@@ -6,6 +6,7 @@
 
 🌐 **在线试玩（免下载）：**
 [https://wbapp-n26s0ofykrynokz16hzww7.app.workbuddy.host/?sharecode=JJBLGZKQ5U](https://wbapp-n26s0ofykrynokz16hzww7.app.workbuddy.host/?sharecode=JJBLGZKQ5U)
+[https://czy-cmd.github.io/Cube-Dash/](https://czy-cmd.github.io/Cube-Dash/)
 
 ---
 
